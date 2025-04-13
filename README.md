@@ -1,5 +1,5 @@
-#hi.
-Im Loukas the uhhh...the uhh....wait lemme remember a sec
+hi.               
+Im Loukas the uhhh...the uhh....wait lemme remember a sec                                      
 Here are some ideas to know me better.
 
 - 🔭 I’m currently working on Learning Github.
