@@ -1,4 +1,4 @@
-hi.               
+hi.(if you are here from the "DO NOT LOOK AT MY" chain,congrats,you get nothing)             
 Im Loukas the uhhh...the uhh....wait lemme remember a sec                                      
 Here are some ideas to know me better.
 
