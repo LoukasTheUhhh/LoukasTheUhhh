@@ -12,3 +12,9 @@ Here are some ideas to know me better.
 - 🌍 Country: Romania.
 - :shipit: Mood: Uhhhh.
 
+## Languages and Tools
+![Javascript](JS.png)
+![HTML](HTML.png)
+![CSS](css.png)
+![Python](python.png)
+
